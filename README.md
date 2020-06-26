@@ -1,2 +1,13 @@
 # Diagnose-of-hot-seal-process
 ![Diagnose_hot_seal_process html#slide=1 - Personal - Microsoft​ Edge 26_06_2020 22_49_36](https://user-images.githubusercontent.com/38221793/85900272-d5d0dd00-b7ff-11ea-8f12-fac78f3db355.png)
+![Diagnose_hot_seal_process html#slide=1 - Personal - Microsoft​ Edge 26_06_2020 22_49_52](https://user-images.githubusercontent.com/38221793/85900521-47109000-b800-11ea-944f-0abcac21387a.png)
+![Diagnose_hot_seal_process html#slide=1 - Personal - Microsoft​ Edge 26_06_2020 22_50_02](https://user-images.githubusercontent.com/38221793/85900524-4841bd00-b800-11ea-9f85-485dff174cc4.png)
+![Diagnose_hot_seal_process html#slide=1 - Personal - Microsoft​ Edge 26_06_2020 22_50_09](https://user-images.githubusercontent.com/38221793/85900525-48da5380-b800-11ea-93f7-03c45bb02612.png)
+![Diagnose_hot_seal_process html#slide=1 - Personal - Microsoft​ Edge 26_06_2020 22_50_17](https://user-images.githubusercontent.com/38221793/85900529-4972ea00-b800-11ea-814f-4f10d21eec5c.png)
+![Diagnose_hot_seal_process html#slide=1 - Personal - Microsoft​ Edge 26_06_2020 22_50_23](https://user-images.githubusercontent.com/38221793/85900533-4aa41700-b800-11ea-8221-8b25582c222c.png)
+![Diagnose_hot_seal_process html#slide=1 - Personal - Microsoft​ Edge 26_06_2020 22_50_36](https://user-images.githubusercontent.com/38221793/85900534-4aa41700-b800-11ea-90e9-792e56c5c141.png)
+![Diagnose_hot_seal_process html#slide=1 - Personal - Microsoft​ Edge 26_06_2020 22_50_42](https://user-images.githubusercontent.com/38221793/85900536-4bd54400-b800-11ea-959d-2a19eceeb072.png)
+![Diagnose_hot_seal_process html#slide=1 - Personal - Microsoft​ Edge 26_06_2020 22_50_48](https://user-images.githubusercontent.com/38221793/85900537-4c6dda80-b800-11ea-9038-299913cebf8e.png)
+![Diagnose_hot_seal_process html#slide=1 - Personal - Microsoft​ Edge 26_06_2020 22_50_54](https://user-images.githubusercontent.com/38221793/85900540-4d067100-b800-11ea-93af-f0103bf46e30.png)
+![Diagnose_hot_seal_process html#slide=1 - Personal - Microsoft​ Edge 26_06_2020 22_51_03](https://user-images.githubusercontent.com/38221793/85900543-4d067100-b800-11ea-8559-54c5ebeb0afc.png)
+![Diagnose_hot_seal_process html#slide=1 - Personal - Microsoft​ Edge 26_06_2020 22_51_06](https://user-images.githubusercontent.com/38221793/85900544-4d9f0780-b800-11ea-95ad-bae157218c10.png)
